@@ -1,8 +1,8 @@
 :root { /* Typography */
-     --spacing-base: 1.4em; /* Base line height and spacing unit */ 
+     --spacing-base: 1.25em; /* Base line height and spacing unit */ 
      --font-family-mono: verdana; /* Base font */
-     --font-size-base: 1em; /* Base font size */ 
-     --font-size-small: 0.9em; /* Small text size */
+     --font-size-base: 0.9em; /* Base font size */ 
+     --font-size-small: 0.8em; /* Small text size */
 
     /* Colors */ 
     --color-bg-primary: #fcfcfc; /* Main background color */
