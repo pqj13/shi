@@ -10,3 +10,7 @@
     --color-border: #fcfcfc; /* Borders and decorative elements */ 
     --color-text-primary: #333333; /* Main text color */ 
     --color-text-muted: #888; /* Muted text color */ }
+
+    h1{
+     color: #990033;
+    }

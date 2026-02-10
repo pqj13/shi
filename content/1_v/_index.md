@@ -1,0 +1,7 @@
+---
+title: "I/V. Lectura de la Palabra de Dios"
+---
+
+1. En las Sagradas Escrituras debe buscarse la verdad, no el estilo literario. Conviene que todas las Sagradas Escrituras se lean con el mismo espíritu con que fueron hechas. En los libros Sagrados debe buscarse más la utilidad que la delicadeza de las frases. Con el mismo gusto debemos leer los textos devotos y simples que los difíciles y profundos. No te fijes en el nivel de los autores, ya sea que escriban sencillamente o con gran despliegue de recursos, más bien que te impulse a leer el amor a la pura verdad. No te preguntes quién lo dijo sino más bien atiende a lo que ha dicho. Los seres humanos pasan pero la verdad del Señor permanece para siempre (Sal 117, 2). Sin hacer distinciones entre unas personas y otras el Señor nos habla de diversas maneras. Nuestra curiosidad nos dificulta con frecuencia la lectura de las Escrituras cuando queremos racionalizar y discutir lo que deberíamos aceptar simplemente. Si quieres de verdad calmar tu sed lee con humildad, sencillez y confianza sin pretender que te reconozcan como erudito. Pregunta con agrado y acepta en silencio las enseñanzas de los santos. No te cansen las explicaciones de los mayores porque no las dicen sin motivo.
+
+**[←](/1_iv)** · **[→](/1_vi)**

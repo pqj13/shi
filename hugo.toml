@@ -1,6 +1,6 @@
 baseURL = 'http://example.org/'
 languageCode = 'es'
-title = 'Kempis'
+title = 'Imitación de Cristo'
 theme = "shibui"
 
 [params]

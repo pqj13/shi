@@ -1,0 +1,22 @@
+---
+title: "I/XIII. Resistir las tentaciones"
+---
+
+1. Mientras vivimos en éste mundo no podemos estar sin aflicciones y tentaciones. Por eso en el libro de Job está escrito: "Tentación es la vida del hombre sobre la tierra" (Job 7, 1). Cada uno debe ser cuidadoso acerca de las tentaciones y mantenerse atento en oración para que el demonio, que jamás descansa sino que da vueltas alrededor buscando a quien devorar (1P 5, 8), no encuentre modo de engañarle. Ninguno es tan perfecto y santo que no tenga a veces tentaciones.
+
+2. No obstante, con frecuencia las tentaciones son muy útiles aunque sean molestas y graves porque en ellas el hombre se humilla, se purifica y aprende. Por muchas angustias y tentaciones todos los santos pasaron y aprovecharon y los que no fueron capaces de soportarlas fueron reprobados y desfallecieron. No existe comunidad tan santa ni lugar tan secreto donde no haya tentaciones y adversidades.
+
+3. Nunca está el ser humano protegido totalmente de la tentación mientras viva porque de nosotros mismos brota la tentación debido a que nacimos inclinados al mal. Cuando una tribulación o tentación nos abandona otra sobreviene y siempre tenemos algo por qué padecer ya que perdimos el gran bien de nuestra original felicidad. Muchos procuran huir de las tentaciones y vienen a caer más gravemente en ellas. No podemos vencerlas con solo huir sino con paciencia y verdadera humildad llegaremos finalmente a ser más fuertes que nuestros enemigos.
+
+4. Quien sólo externamente deshecha el mal pero no lo arranca de raíz poco progresará. Porque pronto volverá a él la tentación y peor se sentirá. Poco a poco, con paciencia y entusiasmo, con la ayuda de Dios, podrás superarte y no con tu propia impaciencia y suficiencia. Acostúmbrate a aceptar buenos consejos cuando te sientas tentado y no trates con dureza al que tiene tentaciones sino más bien consuélalo como quisieras que lo hagan contigo.
+
+5. El inicio de todas las malas tentaciones está en la inconstancia del ánimo y la poca confianza en Dios porque es igual a un barco sin timón empujado de aquí para allá por el oleaje, la persona apocada e inconstante en sus propósitos tentada por eso de diversas maneras. El fuego pone a prueba el hierro y la tentación al hombre honesto. Desconocemos de qué somos capaces pero la tentación lo da a conocer. Debe estarse muy atento sobre todo al comienzo de la tentación porque entonces es más fácil vencer al enemigo. Si cerramos las puertas de la mente y le resistimos en la entrada apenas toca se acabará el problema. Por eso alguien dijo: "Opónte al comienzo; después, la medicina es inútil" (Ovidio Rem 2,91). Porque primero sobreviene a la mente un simple pensamiento después, una llamativa imaginación, finalmente el deleite y el impulso depravado y la aceptación. Así poco a poco, va ingresando el maligno enemigo hasta el fondo por no haber sido rechazado al principio. Mientras más descuidado sea uno en resistir tanto más débil se irá haciendo y el enemigo contra él, más poderoso.
+
+6. Alguno padece más graves tentaciones al inicio de su conversación a Dios algún otro, al final. Alguno la pasa mal durante toda su vida. Algunos son tentados muy suavemente según la sabiduría y equidad de las disposiciones de Dios, que decide de acuerdo con la condición y méritos de las personas y todas las cosas las orienta a la salvación de sus elegidos.
+
+7. Por lo tanto, no debemos desesperarnos cuando sufrimos tentaciones sino más bien rogar a Dios con fervor de manera que en toda tentación se digne ayudarnos ya que, de hecho, según dijo Pablo las tentaciones serán de tal manera (1Co 10, 13) que podamos soportarlas. Humillemos nuestras almas bajo la mano de Dios en toda tentación y tribulación porque salvará a los humildes de espíritu (Sal 34, 19) y los elevará.
+
+8. En las tentaciones y tribulaciones se prueba cuánto ha progresado cada uno, en eso hay mucho mérito y se hace más patente la virtud. No es gran cosa que la persona sea devota y entusiasta cuando no le pasa nada grave pero si se sostiene con paciencia en tiempos adversos habrá esperanza de gran progreso. Algunos se defienden de grandes tentaciones y cotidianamente son vencidos por las pequeñas; esto es para que humillados, nunca se atrevan a confiar demasiado de sí mismos ya que en tan modestas tentaciones fallan.
+
+
+**[←](/1_xii)** · **[→](/1_xiv)**
