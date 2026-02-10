@@ -7,7 +7,7 @@ title: "Imitación de Cristo"
 
 ---
 
-## {{< details summary="PARTE PRIMERA: CONSEJOS ÚTILES PARA LA VIDA ESPIRITUAL" >}}
+## PARTE PRIMERA: CONSEJOS ÚTILES PARA LA VIDA ESPIRITUAL
 
 I. [Imitar a Cristo](/1_i)
 
@@ -39,26 +39,25 @@ XIV. [Evitar los juicios temerarios](/1_xiv)
 
 XV. [Obras hechas por amor](/1_xv)
 
-XVI. Soportar los defectos ajenos
+XVI. [Soportar los defectos ajenos](/1/xvi)
 
-XVII. La vida de los religiosos
+XVII. [La vida de los religiosos](/1_xvii)
 
-XVIII. Ejemplo de los primeros religiosos
+XVIII. [Ejemplo de los primeros religiosos](/1_xviii)
 
-XIX. La actividad del buen religioso
+XIX. [La actividad del buen religioso](/1_xix)
 
-XX. Amor a la soledad y el silencio
+XX. [Amor a la soledad y el silencio](/1_xx)
 
-XXI. Camino a la conversión
+XXI. [Camino a la conversión](/1_xxi)
 
-XXII. Consideración de las limitaciones
+XXII. [Consideración de las limitaciones](/1_xxii)
 
-XXIII. Reflexión sobre la muerte
+XXIII. [Reflexión sobre la muerte](/1_xxiii)
 
-XXIV. Juicio y castigos de los pecadores
+XXIV. [Juicio y castigos de los pecadores](/1_xxiv)
 
-XXV. Permanente reforma de toda nuestra vida
-{{< /details >}}
+XXV. [Permanente reforma de toda nuestra vida](/1_xxv)
 
 ---
 

@@ -1,0 +1,16 @@
+---
+title: "I/XXI. Camino a la conversión"
+---
+
+1. Si quieres adelantar algo consérvate en el respeto a Dios y no pretendas ser demasiado libre sino mantén bajo control todos tus sentidos y no te entregues a alegrías ineptas. Dedícate a transformar tu corazón y sentirás la presencia de Dios. La compunción nos obtiene muchos bienes que la distracción acostumbra perder rápidamente. Es increíble que en esta vida alguien pueda alegrarse alguna vez perfectamente si piensa y reflexiona que está como desterrado y rodeado de tantos peligros.
+
+2. Por causa de nuestra superficialidad y la dejadez en corregir nuestros defectos no sentimos el llamado angustioso de nuestra conciencia sino que tomamos todo a risa cuando más bien deberíamos llorar. No existe verdadera libertad ni justo regocijo sino en el respeto a Dios con buena conciencia. Feliz quien puede arrojar lejos todo impedimento de distracción y recogerse a la unidad gracias al saludable arrepentimiento que nos lleva a la conversión. Feliz quien se abstiene de todo lo que puede  manchar u ofender su conciencia. Lucha valerosamente: una costumbre se vence con otra. Si aprendes a no dejarte llevar por los demás entonces te dejarán hacer lo que te toca.
+
+3. No pretendas manejar asuntos ajenos ni te impliques en las causas de los mayores y amonéstate más especialmente a ti mismo que a todos los que estimas. Si no te favorecen los demás no vayas a sentirte triste por eso pero que sí te sea causa de preocupación el no comportarte bien y consideradamente como corresponde a un servidor de Dios y persona de fe. Con  frecuencia es muy conveniente y seguro que la persona no tenga muchas satisfacciones en esta vida principalmente si se trata de consuelos materiales. Pero si no percibimos o rara vez experimentamos la presencia de Dios es por nuestra culpa porque no buscamos convertirnos a Él abandonando vanidades y exterioridades.
+
+4. Reconoce que no eres merecedor de experimentar el afecto de Dios si no más bien digno de muchas aflicciones. Cuando alguien está más perfectamente urgido a la santidad entonces más pesado y amargo le parece todo el mundo. La persona buena descubre dentro de sí suficiente motivo de dolor y pena. Porque ya se considere a sí o se preocupe del prójimo sabe que nadie vive en éste mundo sin tribulación y cuando más estrictamente se examina más grande es su dolor. Constituyen materia de justo dolor e intenso arrepentimiento nuestros pecados y vicios que nos tienen envueltos, por lo que rara vez somos capaces de contemplar las realidades trascendentes.
+
+5. Si reflexionaras con más frecuencia sobre tu propia muerte en vez de como prolongar la vida no dudo que con más  entusiasmo te enmendarías. Si examinas de corazón las penas futuras del infierno o del proceso de purificación después de muerto creo que con gusto soportarías los esfuerzos y dolores y no tendrías temor de ninguna exigencia. Pero porque estas cosas no penetran en nuestro corazón y todavía amamos la comodidad por eso permanecemos desanimados y muy holgazanes. Frecuentemente hay carencia espiritual donde tanto se lamenta la miserable naturaleza. Ruega pues humildemente al Señor porque como dijo un profeta: "Les alimentaste con aflicciones y les hiciste beber lágrimas" (Sal 80, 6).
+
+
+**[←](/1_xx)** · **[→](/1_xxii)**
