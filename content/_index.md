@@ -7,7 +7,7 @@ title: "Imitación de Cristo"
 
 ---
 
-## PARTE PRIMERA: CONSEJOS ÚTILES PARA LA VIDA ESPIRITUAL
+## {{< details summary="PARTE PRIMERA: CONSEJOS ÚTILES PARA LA VIDA ESPIRITUAL" >}}
 
 I. [Imitar a Cristo](/1_i)
 
@@ -58,6 +58,7 @@ XXIII. Reflexión sobre la muerte
 XXIV. Juicio y castigos de los pecadores
 
 XXV. Permanente reforma de toda nuestra vida
+{{< /details >}}
 
 ---
 
